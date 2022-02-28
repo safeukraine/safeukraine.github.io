@@ -14,7 +14,18 @@ Piastowska 38, 05-850 Bronisze (Warszawa), Polska
 Google Maps: [https://goo.gl/maps/4WSysNspgZoENofRA](https://goo.gl/maps/4WSysNspgZoENofRA)
 
 ## Czego potrzebujemy?
-- Karimaty
+- Karematy
+- środki hemostatyczne
+- buty za kostkę
+- kamizelki kuloodporne
+- kaski
+- Rękawiczki sterylne rozmiar 8,0, 8,5.
+- Rękawice nitrylowe.
+- krótkofalówki
+- odzież termiczna 
+- power bank 
+- środki przeciwbólowe, 
+- lornetki
 - Śpiwory
 - Bielizna termiczna
 - Opaski uciskowe-medyczne (taktyczne wojskowy)
@@ -24,8 +35,6 @@ Google Maps: [https://goo.gl/maps/4WSysNspgZoENofRA](https://goo.gl/maps/4WSysNs
 - Różnego rodzaju środki przeciwbólowe (tabletki, domięśniowy)
 - Antyseptyki
 - Antybiotyki (skóra i /  c) zabandażowany materiał
-- Rękawiczki sterylne rozmiar 8,0, 8,5.
-- Rękawice nitrylowe.
 - Odzież podróżna dla obrony terytorialnej  (bielizna termiczna, odzież wodoodporna)
 - Suche racje żywnościowe
 - Żywność w puszkach
