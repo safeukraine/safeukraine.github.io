@@ -34,6 +34,5 @@ Google Maps: [https://goo.gl/maps/4WSysNspgZoENofRA](https://goo.gl/maps/4WSysNs
 
 ## Кому писати?
 
-- +48 60 787 7636
-- <a href="https://telegram.me/Nast_ua21">@Nast_ua21</a> (Настя)
+*Цілодобова гаряча лінія* +48583502300
 
