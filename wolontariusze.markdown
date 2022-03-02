@@ -43,6 +43,9 @@ Google Maps: [https://goo.gl/maps/4WSysNspgZoENofRA](https://goo.gl/maps/4WSysNs
 
 ## Do kogo pisać?
 
+- +48 53 593 9447
+- +48 79 151 4117
+- +48 57 772 2713
 - +48 60 787 7636
 - <a href="https://telegram.me/Nast_ua21">@Nast_ua21</a> (Anastazja)
 
